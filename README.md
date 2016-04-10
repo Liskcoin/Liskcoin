@@ -1,0 +1,1 @@
+# Liskcoin SHA256 100M AUTHORIZED 
